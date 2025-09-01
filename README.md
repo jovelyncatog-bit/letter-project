@@ -1,2 +1,2 @@
-# letter-project
-"i hope you read this, even if it's too late."
+HAPPY BIRTHDAY 
+Hi, finallyyyy. It's already 12 midnight. I can finally greettt you a happy birthday🎉, I tried to stay up till this time just to greet you exactly 12, kahit napo I have errands Mamaya, Happiest birthday my madam bby, this date is stuck in my mind because it's the birthday of my beloved girl. Even though we aren't together anymore, I still care about you so much, because you're the most important person to me. This might ruin your day but, I just want to say that my heart still longs for your presence, And I still love you step. I wish you have a good celebration later, always remember that I'm always here when you need someone to talk, and I wish you have a good health and long live and good luck sa imong journey, enjoy your day step. I hope you're the happiest person alive right now stepyy.I love youuuu so much😗😗😗
